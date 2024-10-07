@@ -1,3 +1,4 @@
+Cara Memasak Nasi :
 Masukan beras ke dalam panci ricecooker
 Cuci beras sebanyak 3 kali
 Masukan air sesuai takaran
